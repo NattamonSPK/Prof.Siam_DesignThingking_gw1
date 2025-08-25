@@ -7,3 +7,6 @@ Naming LOVE Party
 Party 68130500128
 waddee
 
+
+https://www.facebook.com/share/176SAZstrH/?mibextid=wwXIfr
+https://www.instagram.com/_tamonkul?igsh=YmVoOTZmajMzZzM0&utm_source=qr
